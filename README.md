@@ -1,0 +1,6 @@
+\>-)-)-)-)\*> W3 AR3 TH3 CVLT1ST 0F D3AD F1SH <\*(-(-(-(-<
+- W3 4R3 H3R3
+- 1N Y0UR W4LLS
+- ST3AL1NG Y0UR 1D3NT1TY
+
+Sincerelly yours, R3TS3C
